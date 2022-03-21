@@ -1,2 +1,2 @@
-# clase-4
+# Adelanto de la próxima clase…
 28 de marzo, 2022
